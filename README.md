@@ -1,6 +1,6 @@
 ### Hello there.. 👀 
 
-## I'm a college student that's thirsty for knowledge
+## I'm a college student that's thirsty for knowledge 🥵�
 
 - I’m currently learning OOP 🥇 
 - Hit me up if you wanna do some projects together 👬
