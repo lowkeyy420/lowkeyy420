@@ -5,7 +5,7 @@
 - I’m currently learning OOP 🥇 
 - Hit me up if you wanna do some projects together 👬
 - Willing to learn new stuff (anything) ✨
-- How to reach me : lowkeyඞ#0099 (Discord) 
+- How to reach me : lowkeyඞ#0099 (Discord) 📪
 
 <br />
 
